@@ -6,7 +6,7 @@ Lorem ipsum dolor sit amet consectetur adipisicing elit. Minima reiciendis dolor
 
 Tenetur, culpa quo? Dolorum cumque asperiores ea aliquid perspiciatis saepe officiis in. Doloremque nisi fugiat odit quisquam esse aspernatur, laudantium beatae deserunt dolores, autem labore nihil. Tempore ab sint placeat!
 
-Distinctio consequatur officia voluptatum. Eum animi earum officia magnam nostrum sunt mollitia voluptatem excepturi nemo velit ullam illum repellendus dolor blanditiis pariatur, reiciendis odit, unde minima inventore dignissimos nobis totam?
+Distinctio consequatur officia volupta. Eum animi earum officia magnam nostrum sunt mollitia voluptatem excepturi nemo velit ullam illum repellendus dolor blanditiis pariatur, reiciendis odit, unde minima inventore dignissimos nobis totam?
 
 Natus repellat tempora vel similique, id ipsum animi? Deleniti, ratione itaque minima nulla magni dolorem facere modi, tempora totam qui dolorum, laudantium quaerat. Quisquam, architecto consequatur excepturi incidunt quia deserunt.
 
